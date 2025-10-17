@@ -8,4 +8,4 @@
 - Muhamad Fauzaan
 - Fahreza Mustafiq
 - Salman Yusuf Alfarisi
-- Jokowi Perampok Bangsa
+
