@@ -8,5 +8,5 @@
 - Muhamad Fauzaan
 - Fahreza Mustafiq
 - Salman Yusuf Alfarisi
-- JOKOWI GENG SOLO
+
 
